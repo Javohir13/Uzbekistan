@@ -1,0 +1,2 @@
+# Uzbekistan
+Hkimov qalesiz
